@@ -4,6 +4,7 @@
 - [6NOOfIQTHhRgStVS8WlMua](./6NOOfIQTHhRgStVS8WlMua)
 - [_sigma_15626](./_sigma_15626)
 - [_sun_20807](./_sun_20807)
+- [details](./details)
 - [redo-of-a-healer-episode-4-dub-indo-full](./redo-of-a-healer-episode-4-dub-indo-full)
 
 ---
