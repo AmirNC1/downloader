@@ -8,3 +8,4 @@
 - [https___mylivewallpapers_com_category_anime_ (20260506_212542)](pages/mylivewallpapers.com/https___mylivewallpapers_com_category_anime_/20260506_212542/index.md) — 0 media files
 - [https___fa_v2rayng_org_download_ (20260507_065423)](pages/fa.v2rayng.org/https___fa_v2rayng_org_download_/20260507_065423/index.md) — 5 media files
 - [https___4kwallpapers_com_popular_anime_wallpapers_ (20260507_094253)](pages/4kwallpapers.com/https___4kwallpapers_com_popular_anime_wallpapers_/20260507_094253/index.md) — 58 media files
+- [https___www_pinterest_com_ideas_anime_hd_wallpapers_1080p_phone_906426663777_ (20260507_095322)](pages/pinterest.com/https___www_pinterest_com_ideas_anime_hd_wallpapers_1080p_phone_906426663777_/20260507_095322/index.md) — 37 media files
